@@ -1,2 +1,2 @@
 # Hades-P-Huang
-studey
+study
